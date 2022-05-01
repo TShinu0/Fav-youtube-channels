@@ -28,3 +28,4 @@
 -	b. [Wested_arin](https://www.youtube.com/channel/UCoqkR26bl8dc7C19psm6whg)
 -	c. [Michelle Choi](https://www.youtube.com/channel/UCqJODva8CJ_JTbi5ssC2L-g)
 -	d. [Deemed](https://www.youtube.com/channel/UCrFlv9c4LItVlIMCC2p6LOg)
+- 	e. [TheCottageFairy](https://www.youtube.com/channel/UCKx5lHJ6Fr5mbT4TYVLh6ng)

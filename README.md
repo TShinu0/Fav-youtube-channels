@@ -19,4 +19,5 @@
 -	b. [Merve](https://www.youtube.com/c/MerveStudyCorner)
 -	c. [Abao in Tokyo](https://www.youtube.com/c/%E9%98%BF%E9%B2%8D)
 -	d. [James Scholz](https://www.youtube.com/c/JamesScholz)
+-	e. [Eicalyptus Vlog](https://www.youtube.com/channel/UCY18mQmz2B8i9SsNMlNCSXQ)
 ---

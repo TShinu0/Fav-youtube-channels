@@ -21,3 +21,8 @@
 -	d. [James Scholz](https://www.youtube.com/c/JamesScholz)
 -	e. [Eicalyptus Vlog](https://www.youtube.com/channel/UCY18mQmz2B8i9SsNMlNCSXQ)
 ---
+
+### 4. Personalities to lookup on.
+
+-	a. [Wested_arin](https://www.youtube.com/channel/UCoqkR26bl8dc7C19psm6whg)
+

@@ -23,6 +23,7 @@
 ---
 
 ### 4. Personalities to lookup on.
-
--	a. [Wested_arin](https://www.youtube.com/channel/UCoqkR26bl8dc7C19psm6whg)
-
+	
+-	a. [Ryan Garcia](https://www.youtube.com/c/RyanGarcia)
+-	b. [Wested_arin](https://www.youtube.com/channel/UCoqkR26bl8dc7C19psm6whg)
+-	c. [Michelle Choi](https://www.youtube.com/channel/UCqJODva8CJ_JTbi5ssC2L-g)

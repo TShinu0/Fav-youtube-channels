@@ -7,10 +7,10 @@
 -	c. [Errichto](https://www.youtube.com/c/Errichto)
 -	d. [Colin Galen](https://www.youtube.com/c/ColinGalen)
 ---
-### 2. Pysical Fitness Related channels.
+### 2. Pysical Fitness and Diet Related channels.
 
 -	a. [K boges](https://www.youtube.com/user/Kbogea)
-
+-	b. [DadaCafe](https://www.youtube.com/channel/UCz8X5F5Zp18WS7vdW0jwVIA)
 ---
 ### 3. Study with me / Read with me / Code with me channels.
 

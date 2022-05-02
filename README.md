@@ -11,6 +11,7 @@
 
 -	a. [K boges](https://www.youtube.com/user/Kbogea)
 -	b. [DadaCafe](https://www.youtube.com/channel/UCz8X5F5Zp18WS7vdW0jwVIA)
+-	c. [Natasha Aughey](https://www.youtube.com/channel/UCOoinMUITSct1fay7MECxUg)
 ---
 ### 3. Study with me / Read with me / Code with me channels.
 

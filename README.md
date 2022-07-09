@@ -14,6 +14,11 @@
 -	c. [Natasha Aughey](https://www.youtube.com/channel/UCOoinMUITSct1fay7MECxUg)
 -	d. [Hamza](https://www.youtube.com/c/Hamza97)
 -	e. [Hamza Unfiltered](https://www.youtube.com/channel/UCHW4DMIaBmTGGGPmbmr-Dsg)
+-   f. [Andrew kirby](https://www.youtube.com/c/AndrewKirbys)
+-   g. [Aryan Khanna](https://www.youtube.com/c/AryanKhannayt)
+-   h. [Brae](https://www.youtube.com/channel/UCSw0c39CyA_dAROvepenDvA)
+-   i. [Iman Gadzhi](https://www.youtube.com/c/ImanGadzhi)
+
 ---
 ### 3. Study with me / Read with me / Code with me channels.
 

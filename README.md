@@ -18,6 +18,12 @@
 -   g. [Aryan Khanna](https://www.youtube.com/c/AryanKhannayt)
 -   h. [Brae](https://www.youtube.com/channel/UCSw0c39CyA_dAROvepenDvA)
 -   i. [Iman Gadzhi](https://www.youtube.com/c/ImanGadzhi)
+-   j. [devaslife](https://www.youtube.com/c/devaslife)
+-   k. [EngineerMan](https://www.youtube.com/c/EngineerMan)
+-   l. [GraveMind](youtube.com/c/GRAVEMINDunderground)
+-   m. [GeorgeHotzArchive](https://www.youtube.com/c/georgehotzarchive)
+-   n. [lukesmithxyz](https://www.youtube.com/c/lukesmithxyz)
+-   o. [ShanthanuKumar](https://www.youtube.com/c/ShantanuKumar)
 
 ---
 ### 3. Study with me / Read with me / Code with me channels.

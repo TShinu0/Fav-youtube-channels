@@ -7,6 +7,7 @@
 -	c. [Errichto](https://www.youtube.com/c/Errichto)
 -	d. [Colin Galen](https://www.youtube.com/c/ColinGalen)
 ---
+
 ### 2. Pysical Fitness and Diet Related channels.
 
 -	a. [K boges](https://www.youtube.com/user/Kbogea)
@@ -20,10 +21,11 @@
 -   i. [Iman Gadzhi](https://www.youtube.com/c/ImanGadzhi)
 -   j. [devaslife](https://www.youtube.com/c/devaslife)
 -   k. [EngineerMan](https://www.youtube.com/c/EngineerMan)
--   l. [GraveMind](youtube.com/c/GRAVEMINDunderground)
+-   l. [GraveMind](https://youtube.com/c/GRAVEMINDunderground)
 -   m. [GeorgeHotzArchive](https://www.youtube.com/c/georgehotzarchive)
 -   n. [lukesmithxyz](https://www.youtube.com/c/lukesmithxyz)
 -   o. [ShanthanuKumar](https://www.youtube.com/c/ShantanuKumar)
+-   p. [1StMan](https://www.youtube.com/c/1STMAN)
 
 ---
 ### 3. Study with me / Read with me / Code with me channels.
